@@ -1,6 +1,6 @@
                       yello!1! . i go by ROY and SAGE . ✧
 
-                    ponytown player; DISCORD: party.sage . ✧
+                    ponytown player; DISCORD: scene.lights . ✧
 
                       if have *tips* 4 my skins PLEASE say so . ✧ 
 
