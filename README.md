@@ -10,6 +10,6 @@
                  . ✧
         ✧ ; she/he , BIGENDER!1! @ omnisexual , SOMETIMES has typing quirks; like making 's' a 'z' or randum numbers. ✧ 
         
-       ! , ! VERY talkitive . JOKE humor . dni if take my jokes srsly.. OSC & REGRETEVATOR & OMORI + others
+       ! , ! VERY talkitive . JOKE humor . dni if take my jokes srsly.. OSC & REGRETEVATOR & OMORI + phighting n more!1!
 
                                                  ✧ FICTKIN
