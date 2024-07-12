@@ -8,7 +8,7 @@
 
                              w2i most of the time , thx for sending me crowns guys!! <3 mwahh/p
                        . 
-                             info: im a minor, my dc is scene.lights, and i go by she/he but they/any is alright
+                             info: im a minor, my discord is yinyangfan, and i go by she/he but they/any is alright
                          MY NAMES R SAGE, ROY, ULEANRA, etc. 🥳
                                                                    ✧ FICTKIN
                                                                    
