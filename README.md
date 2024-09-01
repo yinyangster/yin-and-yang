@@ -8,8 +8,8 @@
 
                              w2i most of the time , thx for sending me crowns guys!! <3 mwahh/p
                        . 
-                             info: im a minor, my discord is shuri.kun, and i go by she/he but they/any is alright
-                         MY NAMES R SAGE, ROY, ULEANRA, etc. 🥳
+                             info: im a minor, my discord is sageshy, and i go by she/he but they/any is alright
+                         MY NAMES R SAGE, ROY, CURE, etc. 🥳
                                                                    ✧ FICTKIN
                                                                    
                                          im taken!! joke flirting is alright, dont go overboard! i have a partner :(
@@ -20,4 +20,4 @@
                           in alot of object shows, like ALOT. im not in objectifed bbut.. i might read it soon!! >O<
                                                                                                                     i ❤ cuddle lines.
                                                                                                                          :p!!!!!!!!
-                          
+                          pls ask to take inspo..no heavy inspo tho,,
