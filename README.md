@@ -8,7 +8,7 @@
 
                              w2i most of the time , thx for sending me crowns guys!! <3 mwahh/p
                        . 
-                             info: im a minor, my discord is sageshy, and i go by she/he but they/any is alright
+                             info: im a minor, my discord is sageshy, and i go by she/he but they/any is ok
                          MY NAMES R SAGE, ROY, CURE, etc. 🥳
                                                                    ✧ FICTKIN
                                                                    
