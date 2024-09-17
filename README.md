@@ -8,3 +8,4 @@
 ![alt text](https://watermelon.crd.co/assets/images/gallery22/0cdbcc81.jpg?v=6332de85)
 ![alt text](https://watermelon.crd.co/assets/images/gallery22/f4903709.gif?v=6332de85)
  ❝　BIgender freak >_<　❞
+❝　yinyang, infected, shrimpo and scraps kinnie !!!!　❞
