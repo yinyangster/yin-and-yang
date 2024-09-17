@@ -3,5 +3,5 @@
 ![alt text](https://64.media.tumblr.com/887622132b3fede94b21686584d4d4fe/44b6b4022879c5bb-9b/s75x75_c1/f534a380100ece8ac8aea296121bfa31e4adfb88.gifv)
 <3
 ![alt text](https://images-ext-1.discordapp.net/external/l-mok7LEcHXSULRD56YOB1ew4H2jIvi-5QbuYlK5E5w/https/64.media.tumblr.com/159a1d791f1f7dbe9b02a7f5eea90576/2be3d7b7e3b8925d-a7/s100x200/57b686170f30956babde9dc67681c8778fb438a2.pnj?format=webp&width=74&height=42)
-![alt text](https://64.media.tumblr.com/6e7761d2ddc4a687f71b384498467b3e/44b6b4022879c5bb-e9/s75x75_c1/ba21bc3ce9da29c4ad67ff711a2ba3e19cfe7af7.gifv)
+![alt text](https://yokai.crd.co/assets/images/gallery19/f7e2f182.gif?v=b4df531c)
 ![alt text](https://64.media.tumblr.com/87829068ccc878904fd4242a4f30d662/44b6b4022879c5bb-3c/s75x75_c1/b3d7fbd235f6df12cdf8fbe69874b8d391eab67c.gifv)
