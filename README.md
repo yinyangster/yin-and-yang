@@ -1,4 +1,4 @@
-   ❝　I HATE ELEVATORS SO MUCH!!!!　❞
+   ❝　SIMON FROM SPRUNKIS #1 fan, also simoren #1 shipper.. heh | THE Yin-Yang of ponytown OFFICAL!!!!!!　❞
                                                                                                                                                                                                                                              
 ![alt text](https://64.media.tumblr.com/887622132b3fede94b21686584d4d4fe/44b6b4022879c5bb-9b/s75x75_c1/f534a380100ece8ac8aea296121bfa31e4adfb88.gifv)
 <3
@@ -8,4 +8,4 @@
 ![alt text](https://watermelon.crd.co/assets/images/gallery22/0cdbcc81.jpg?v=6332de85)
 ![alt text](https://watermelon.crd.co/assets/images/gallery22/f4903709.gif?v=6332de85)
  ❝　BIgender freak >_<　❞
-❝　yinyang(HEAVY kin) , infected, shrimpo, scraps, four, seven (HEAVY kin) , and gelatin (HEAVY kin) kinnie !!!!　❞
+❝　yinyang(HEAVY kin) , infected, shrimpo, scraps, four, seven (HEAVY kin) , and gelatin (HEAVY kin) Simon, and cosmo kinnie !!!!　❞
